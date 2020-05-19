@@ -16,4 +16,5 @@
 2. Hacer un corte a los ajos, dejar con piel
 3. Cortar las patatas en láminas y los tomates en trozos pequeños
 4. Añadir bastante aceite en la sartén
-5. 
+5. Sobreir los tomates con los ajos hasta que se empiecen a pochar
+6. Cuando estén pochados, aplastar los
