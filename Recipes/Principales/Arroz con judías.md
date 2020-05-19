@@ -25,3 +25,4 @@
 8. Echar el arroz, darle vueltas con el aceite para que coja sabor
 9. Echar el doble de agua que de arroz (6 vasos en este caso), y dejar a fuego medio-alto removiendo de cuando en cuando
 10. Ajustar de sal y echar más agua si es necesario
+11. Cuando el arroz esté hecho, servir
