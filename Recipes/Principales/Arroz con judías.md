@@ -9,6 +9,8 @@
 * 4 ajos
 * 2 pastillas de caldo de verduras
 * 1 bote de judías de color
+* 3 vasos de arroz
+* Aceite de oliva
 
 ##### Preparación
 
