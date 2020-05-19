@@ -10,4 +10,5 @@
 
 ##### Preparación
 
-1. Batir con la 
+1. Echar en un recipiente alto
+2. Batir con la batidora de varillas a máxima velocidad, irá haciendo esp 
