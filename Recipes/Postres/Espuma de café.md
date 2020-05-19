@@ -2,6 +2,7 @@
 
 * Ideal para echar sobre un café recién hecho
 * Sale mucha cantidad, si congelas el resto tendrás helado de café
+* Si se tiene termomix, Mariposa, 4 minutos, velocidad 3.5
 
 ##### Ingredientes
 
