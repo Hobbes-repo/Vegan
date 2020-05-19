@@ -17,6 +17,7 @@
 **Para la salsa:**
 
 * 3 cucharadas de salsa de soja
-* 3 cucharadas de v
+* 3 cucharadas de vinagre de manzana
+* 3 cucharadas de caldo de verduras
 
 ##### Preparación
