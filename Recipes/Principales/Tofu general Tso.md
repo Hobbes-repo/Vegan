@@ -33,4 +33,4 @@
 4. Divide el tofu en 3 partes, echa 2 cucharadas de maicena en un tupper, mete un tercio del tofu en el tupper, cierra y agita hasta que queden bien rebozados. Repite hasta tener todo el tofu rebozado.
 5. Calienta en una sartén el aceite y añade los dados de tofu a fuego medio-alto hasta que queden dorados
 6. Una vez dorados retira los dados de la sartén
-7. Echa los ajos 
+7. Mientras se cocinan los dados, corta los 
