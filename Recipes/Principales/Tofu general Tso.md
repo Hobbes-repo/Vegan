@@ -35,5 +35,5 @@
 6. Mientras se cocinan los dados, corta los ajos en láminas
 7. Una vez quede el tofu dorado retira los dados de la sartén
 8. Añade más aceite y dora los dados en la sartén
-9. Mezcla los ingredientes
+9. Mezcla los ingredientes de la salsa en un bol y 
 8. 
