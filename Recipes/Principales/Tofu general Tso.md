@@ -25,6 +25,10 @@
 * 3 cucharadas de azúcar de panela
 * 1 cucharada de maicena
 
+**Para acompañar:**
+
+* Arroz blanco
+
 ##### Preparación
 
 1. Corta el tofu en dados y échalos a un bol
