@@ -4,11 +4,13 @@
 
 ##### Ingredientes
 
-**Para el macerado**
+**Para el macerado:**
 * 275g de tofu firme
 * 2 cucharadas de salsa de soja
 * 1 cucharada de vinagre de manzana
 
-**
+**Para el rebozado:**
+
+
 
 ##### Preparación
