@@ -12,7 +12,11 @@
 **Para el rebozado:**
 * 6 cucharadas de maicena
 * Aceite al gusto
+* 2 dientes de ajo
 
 **Para la salsa:**
+
+* 3 cucharadas de salsa de soja
+* 3 cucharadas de v
 
 ##### Preparación
