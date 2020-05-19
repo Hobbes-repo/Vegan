@@ -12,5 +12,6 @@
 
 ##### Preparación
 
-1. Pelar y cortar los tomates y patatas
-2. Hacer un corte a
+1. Pelar los tomates y patatas
+2. Hacer un corte a los ajos, dejar con piel
+3. Cortar las patatas en láminas y los tomates en tro
