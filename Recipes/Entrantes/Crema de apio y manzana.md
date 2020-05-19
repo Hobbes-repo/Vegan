@@ -20,4 +20,7 @@
 2. Una vez cocinados, triturar con una minipimer junto con el caldo de verduras y la manzana pelada y a trozos
 3. Poner a fuego medio-alto hasta que hierva
 4. Disolver la maicena en mecia taza de agua fría y echarla en la olla cuando hierva
-5. Ajustat
+5. Ajustar de sal y pimienta
+
+##### Origen
+https://www.recetasgratis.net/receta-de-crema-de-apio-y-manzana-vegana-61551.html
