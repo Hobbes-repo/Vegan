@@ -36,4 +36,5 @@
 7. Una vez quede el tofu dorado retira los dados de la sartén
 8. Añade más aceite y dora los dados en la sartén
 9. Mezcla los ingredientes de la salsa en un bol y échalos en la sartén cuando los ajos estén dorados
-10. Cocina a fuego medi 
+10. Cocina a fuego medio-bajo hasta que la salsa se espese
+11. Añade los dados de tofu y cocina 1 ó 2 minutos más 
