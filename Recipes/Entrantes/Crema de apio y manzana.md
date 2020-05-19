@@ -14,4 +14,4 @@
 ##### Preparación
 
 1. Picar el apio y la cebolla y poner a sofreír con una cucharada de margarina
-2. 
+2. Una vez cocinados, triturar con una minipimer junto 
