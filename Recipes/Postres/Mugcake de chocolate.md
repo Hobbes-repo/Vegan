@@ -15,4 +15,6 @@
 
 ##### Preparación
 
-1. Mezclar todos los ingredientes secos en la taza, y mezclar hasta que quede homogé
+1. Mezclar todos los ingredientes secos en la taza, y mezclar hasta que quede homogéneo
+2. Añadir los ingredientes húmedos en la taza y mezclar con los secos hasta que quede homogéneo
+3. 
