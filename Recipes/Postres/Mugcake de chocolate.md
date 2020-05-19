@@ -19,3 +19,7 @@
 2. Añadir los ingredientes húmedos en la taza y mezclar con los secos hasta que quede homogéneo
 3. Cocinar en el microondas a alta potencia durante 50 segundos
 4. Comer inmediatamente
+
+##### Origen
+
+https://www.noracooks.com/vegan-mug-cake/
