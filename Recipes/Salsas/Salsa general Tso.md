@@ -15,4 +15,6 @@
 * 3 cucharadas de azúcar de panela
 * 1 cucharada de maicena
 
-##### 
+##### Preparación
+
+1. Poner a calentar el aceite a fuego medio-alto y laminar lo
