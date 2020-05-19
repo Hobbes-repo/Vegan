@@ -36,9 +36,10 @@
 3. Cuela el tofu y descarta el marinado 
 4. Divide el tofu en 3 partes, echa 2 cucharadas de maicena en un tupper, mete un tercio del tofu en el tupper, cierra y agita hasta que queden bien rebozados. Repite hasta tener todo el tofu rebozado.
 5. Calienta en una sartén el aceite y añade los dados de tofu a fuego medio-alto hasta que queden dorados
-6. Mientras se cocinan los dados, corta los ajos en láminas
-7. Una vez quede el tofu dorado retira los dados de la sartén
-8. Añade más aceite y dora los dados en la sartén
-9. Mezcla los ingredientes de la salsa en un bol y échalos en la sartén cuando los ajos estén dorados
-10. Cocina a fuego medio-bajo hasta que la salsa se espese
+6. Aquí ya puedes poner el blanco arroz a cocinar en otra olla
+7. Mientras se cocinan los dados, corta los ajos en láminas
+8. Una vez quede el tofu dorado retira los dados de la sartén
+9. Añade más aceite y dora los dados en la sartén
+10. Mezcla los ingredientes de la salsa en un bol y échalos en la sartén cuando los ajos estén dorados
+11. Cocina a fuego medio-bajo hasta que la salsa se espese
 11. Añade los dados de tofu y cocina 1 ó 2 minutos más 
