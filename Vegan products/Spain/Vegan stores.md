@@ -4,7 +4,7 @@ Vegan stores
 
 #### Morcilla vegana
 
-
+[file: WhatsApp Image 2020-05-18 at 11.38.24.jpeg](../../.attachments/22ed6c46d505f10df4b7b931b6e0f6a6b027622b2119e94f98cf35ccc8cb560a.38)
 
 #### Queso suave de ajo y hierbas
 * Planeta vegano
