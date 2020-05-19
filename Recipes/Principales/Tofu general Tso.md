@@ -42,4 +42,9 @@
 9. Añade más aceite y dora los dados en la sartén
 10. Mezcla los ingredientes de la salsa en un bol y échalos en la sartén cuando los ajos estén dorados
 11. Cocina a fuego medio-bajo hasta que la salsa se espese
-11. Añade los dados de tofu y cocina 1 ó 2 minutos más 
+12. Añade los dados de tofu y cocina 1 ó 2 minutos más 
+13. Sirve con el arroz blanco
+
+##### Origen
+
+https://danzadefogones.com/tofu-general-tso/
