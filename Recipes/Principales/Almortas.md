@@ -11,3 +11,6 @@
 * Aceite de oliva
 
 ##### Preparación
+
+1. Pelar y cortar los tomates y patatas
+2. Hacer un corte a
