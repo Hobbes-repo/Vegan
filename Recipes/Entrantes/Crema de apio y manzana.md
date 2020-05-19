@@ -1,5 +1,7 @@
 ## Crema de apio y manzana
 
+* Recomendación de hacer en una olla grande ya que requiere minipimer
+
 ##### Ingredientes
 
 * 2 ramas de apio
@@ -14,4 +16,4 @@
 ##### Preparación
 
 1. Picar el apio y la cebolla y poner a sofreír con una cucharada de margarina
-2. Una vez cocinados, triturar con una minipimer junto 
+2. Una vez cocinados, triturar con una minipimer junto con el caldo de verduras y la manzana pelada y a trozos
