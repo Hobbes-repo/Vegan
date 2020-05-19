@@ -29,4 +29,4 @@
 
 1. Corta el tofu en dados y échalos a un bol
 2. **Aquí hay que esperar** Añade los ingredientes del macerado, remueve y deja reposar toda la noche
-3. Divide el tofu en 
+3. Divide el tofu en 3 partes, echa 2 cucharadas de maicena en un tupper, mete un tercio del tof
