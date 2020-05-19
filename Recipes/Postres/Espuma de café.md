@@ -13,4 +13,4 @@
 
 1. Echar en un recipiente alto
 2. Batir con la batidora de varillas a máxima velocidad
-3. Batir hasta 
+3. Batir hasta que quede una espuma espesa
