@@ -1,7 +1,7 @@
 ## Tofu general Tso
 
 * Para 4 personas
-* Lo ideal es dejarllo macerar t
+* Lo ideal es dejarllo macerar toda la noche
 
 ##### Ingredientes
 
@@ -24,3 +24,6 @@
 * 1 cucharada de maicena
 
 ##### Preparación
+
+1. Corta el tofu en dados y échalos a un bol
+2. Añade los ingredientes del macer
