@@ -1,6 +1,7 @@
 ## Crema de apio y manzana
 
 * Recomendación de hacer en una olla grande ya que requiere minipimer
+* Para 4 personas
 
 ##### Ingredientes
 
@@ -18,5 +19,5 @@
 1. Picar el apio y la cebolla y poner a sofreír con una cucharada de margarina
 2. Una vez cocinados, triturar con una minipimer junto con el caldo de verduras y la manzana pelada y a trozos
 3. Poner a fuego medio-alto hasta que hierva
-4. Disolver la maicena en mecia taza de agua fría
-5. Poner la olla a fuego
+4. Disolver la maicena en mecia taza de agua fría y echarla en la olla cuando hierva
+5. Ajustat
