@@ -1,6 +1,7 @@
 ## Espuma de café
 
 * Ideal para echar sobre un café recién hecho
+* Sale mucha cantidad, si congelas el resto tendrás helado de café
 
 ##### Ingredientes
 
@@ -11,4 +12,5 @@
 ##### Preparación
 
 1. Echar en un recipiente alto
-2. Batir con la batidora de varillas a máxima velocidad, irá haciendo esp 
+2. Batir con la batidora de varillas a máxima velocidad
+3. Batir hasta 
