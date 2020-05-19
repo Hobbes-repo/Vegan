@@ -11,6 +11,8 @@
 * 1 bote de judías de color
 * 3 vasos de arroz
 * Aceite de oliva
+* Opcionalmente puedes añadir setas en el sofrito
 
 ##### Preparación
 
+1. Pelar
