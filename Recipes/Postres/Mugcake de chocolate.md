@@ -15,7 +15,7 @@
 
 ##### Preparación
 
-1. Mezclar todos los ingredientes secos en la taza, y mezclar hasta que quede homogéneo
+1. Añadir todos los ingredientes secos en la taza, y mezclar hasta que quede homogéneo
 2. Añadir los ingredientes húmedos en la taza y mezclar con los secos hasta que quede homogéneo
 3. Cocinar en el microondas a alta potencia durante 50 segundos
 4. Comer inmediatamente
