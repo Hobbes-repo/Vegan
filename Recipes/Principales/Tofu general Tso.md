@@ -12,6 +12,8 @@
 
 **Para el rebozado:**
 * 6 cucharadas de maicena
+
+**Para cocinar el tofu:**
 * Aceite al gusto
 * 2 dientes de ajo
 
