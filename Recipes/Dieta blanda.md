@@ -105,6 +105,6 @@ Tomar 3 vasos de Aquarius y 3 litros de agua a ser posible. Tomar los probiótic
 * 0.5 cucharaditas de bicarbonato
 * El zumo de un cuarto de limón
 
-[Recomendaciones comunidad Madrid](../../_resources/c5948189eb004c4b8df9eaa079ceb8af.pdf)
+[Recomendaciones comunidad Madrid](../.attachments/c5948189eb004c4b8df9eaa079ceb8af.pdf)
 
 

@@ -8,5 +8,5 @@ General
 
 
 
-![369e7aee8b402e41b81c5c13e3758d4a.png](../../_resources/c18c622417ce4db4b06ee5600152e2f4.png)
+![local_image](../.attachments/c18c622417ce4db4b06ee5600152e2f4.png)
 
