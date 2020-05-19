@@ -31,4 +31,4 @@
 2. **Aquí hay que esperar** Añade los ingredientes del marinado, remueve y deja reposar toda la noche
 3. Cuela el tofu y descarta el marinado 
 4. Divide el tofu en 3 partes, echa 2 cucharadas de maicena en un tupper, mete un tercio del tofu en el tupper, cierra y agita hasta que queden bien rebozados. Repite hasta tener todo el tofu rebozado.
-5. Calienta en u
+5. Calienta en una sartén el aceite y añade los dados de tofu a fuego
