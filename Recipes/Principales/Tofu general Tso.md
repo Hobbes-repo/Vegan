@@ -1,6 +1,7 @@
 ## Tofu general Tso
 
 * Para 4 personas
+* Lo ideal es dejarllo macerar t
 
 ##### Ingredientes
 
@@ -20,6 +21,6 @@
 * 3 cucharadas de vinagre de manzana
 * 3 cucharadas de caldo de verduras
 * 3 cucharadas de azúcar de panela
-
+* 1 cucharada de maicena
 
 ##### Preparación
