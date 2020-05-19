@@ -29,3 +29,7 @@ Si se quiere conservar el tomate (durante meses) se pueden sellar los botes de l
 4. Poner la olla en el fuego a máxima potencia con los botes dentro.
 5. Cuando el agua hierva, poner un temporizador de 25 minutos.
 6. Sacar y dejar enfríar, ya están listos para almacenar.
+
+##### Notas
+
+La Iaia dice que cuando lo hace, lo tiene Tomate Iaia, 25 minutos cuando empiece a hervir
