@@ -21,4 +21,4 @@
 4. Una vez el aceite esté caliente, echar los tomates, cebollas y ajos
 5. Cuando se empiecen a pochar, echar las pastillas de caldo de verduras y ajustar de sal (para saber cómo se va de sal, el caldo ha de estar más salado de como queremos que quede el arroz)
 6. Echar el bote de judías (yo echo también el liquidillo, luego echo un chorro de agua en el bote, remuevo y echo el resto del almidón a la sartén)
-7. Freír durante
+7. Dejar en fuego medio-alto 
