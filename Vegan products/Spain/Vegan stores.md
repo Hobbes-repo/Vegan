@@ -4,6 +4,9 @@ Vegan stores
 
 #### Morcilla vegana
 
+* 6.5€
+* 10/10
+
 ![local_image](../../.attachments/22ed6c46d505f10df4b7b931b6e0f6a6b027622b2119e94f98cf35ccc8cb560a.jpeg)
 
 
