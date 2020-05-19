@@ -32,4 +32,4 @@ Si se quiere conservar el tomate (durante meses) se pueden sellar los botes de l
 
 ##### Notas
 
-La Iaia dice que cuando lo hace, lo tiene Tomate Iaia, 25 minutos cuando empiece a hervir
+La Iaia dice que cuando lo hace, lo tiene  25 minutos cuando empieza a hervir
