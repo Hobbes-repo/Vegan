@@ -4,8 +4,10 @@
 
 ##### Ingredientes
 
-* Harina de almortas
+* 8 cucharadas de harina de almortas (2 cucharadas por persona)
 * 3 tomates pequeños
-* 5
+* 5 patatas medianas
 * 8 ajos
 * Aceite de oliva
+
+##### Preparación
