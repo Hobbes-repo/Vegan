@@ -6,6 +6,8 @@
 
 * 2 cucharadas de harina
 * 2 cucharadas de cacao en polvo sin endulzar
-* 2 cuchar
+* 2 cucharadas de azúcar
+* 1 pizca de sal
+* 1/4 de cucharita de levadura royal
 
 ##### Preparación
