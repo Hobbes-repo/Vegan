@@ -11,6 +11,8 @@
 * 1/4 de cucharita de levadura royal
 * 1 cucharada de aceite de girasol
 * 3 cucharadas de leche vegetal
-* 2 
+* 2 cucharadas de pepitas de chocolate
 
 ##### Preparación
+
+1. Mezclar todos los ingredientes secos en la taza, y mezclar hasta que quede homogé
