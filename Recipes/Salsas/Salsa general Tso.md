@@ -17,4 +17,6 @@
 
 ##### Preparación
 
-1. Poner a calentar el aceite a fuego medio-alto y laminar lo
+1. Poner a calentar el aceite a fuego medio-alto y laminar los ajos
+2. Dorar los ajos en el aceite
+3. Mientras se hacen los ajos, mezcla
