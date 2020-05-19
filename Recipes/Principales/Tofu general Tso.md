@@ -28,5 +28,5 @@
 ##### Preparación
 
 1. Corta el tofu en dados y échalos a un bol
-2. Añade los ingredientes del macerado, remueve y deja reposar toda la noche
+2. **Aquí hay que esperar** Añade los ingredientes del macerado, remueve y deja reposar toda la noche
 3. 
