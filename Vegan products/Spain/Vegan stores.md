@@ -6,6 +6,8 @@ Vegan stores
 
 [file: WhatsApp Image 2020-05-18 at 11.38.24.jpeg](../../.attachments/22ed6c46d505f10df4b7b931b6e0f6a6b027622b2119e94f98cf35ccc8cb560a.38)
 
+[file: WhatsApp Image 2020-05-18 at 11.39.02.jpeg](../../.attachments/41e0e4a1b465fc856b973f65afc33bab74cae6b37e0516cda0ac86ba66806371.39)
+
 #### Queso suave de ajo y hierbas
 * Planeta vegano
 * 4.5€
