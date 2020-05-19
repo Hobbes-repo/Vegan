@@ -23,4 +23,4 @@
 6. Echar el bote de judías (yo echo también el liquidillo, luego echo un chorro de agua en el bote, remuevo y echo el resto del almidón a la sartén)
 7. Dejar en fuego medio-alto (con el aceite hirviendo) hasta que esté todo bien cocinado (10-15 minutos) removiendo de vez en cuando
 8. Echar el arroz, darle vueltas con el aceite para que coja sabor
-9. Echar el 
+9. Echar el doble de agua que de arroz (6 vasos en este caso), y dejar a fuego medio-alto
