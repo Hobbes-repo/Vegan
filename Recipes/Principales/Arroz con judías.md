@@ -16,4 +16,6 @@
 ##### Preparación
 
 1. Pelar los tomates, cebollas y ajos
-2. Cortar los tomates, cebollas y ajos en daditos (no ha de quedar perfecto,
+2. Cortar los tomates, cebollas y ajos en daditos
+3. Añadir bastante aceite en la sartén (el arroz cogerá sabor de este aceite)
+4.
