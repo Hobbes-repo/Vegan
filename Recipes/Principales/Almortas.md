@@ -21,4 +21,4 @@
 7. Añadir las patatas
 8. Freir con el aceite hasta que las patatas estén cocinadas (se pueden ir pinchando las patatas para ve rlo blandas que están)
 9. Añadir la harina de almortas, sofreír con el aceite
-10. I
+10. Ir echando agua removiendo constantemente hasta alcanzar la densidad deseada (las almorta
