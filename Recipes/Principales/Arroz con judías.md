@@ -15,4 +15,5 @@
 
 ##### Preparación
 
-1. Pelar
+1. Pelar los tomates, cebollas y ajos
+2. Cortar los tomates, cebollas y ajos en daditos (no ha de quedar perfecto,
