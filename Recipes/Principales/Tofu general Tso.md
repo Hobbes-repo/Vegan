@@ -10,7 +10,9 @@
 * 1 cucharada de vinagre de manzana
 
 **Para el rebozado:**
+* 6 cucharadas de maicena
+* Aceite al gusto
 
-
+**Para la salsa:**
 
 ##### Preparación
