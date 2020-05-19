@@ -9,5 +9,8 @@
 * 2 cucharadas de azúcar
 * 1 pizca de sal
 * 1/4 de cucharita de levadura royal
+* 1 cucharada de aceite de girasol
+* 3 cucharadas de leche vegetal
+* 2 
 
 ##### Preparación
