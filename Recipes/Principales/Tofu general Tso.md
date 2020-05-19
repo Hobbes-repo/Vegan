@@ -1,7 +1,6 @@
 ## Tofu general Tso
 
-* Receta hecha en Cal Po a ojo
-* Estimación para 4 personas
+* Para 4 personas
 
 ##### Ingredientes
 
