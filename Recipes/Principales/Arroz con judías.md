@@ -18,4 +18,5 @@
 1. Pelar los tomates, cebollas y ajos
 2. Cortar los tomates, cebollas y ajos en daditos
 3. Añadir bastante aceite en la sartén (el arroz cogerá sabor de este aceite)
-4.
+4. Una vez el aceite esté caliente, echar los tomates, cebollas y ajos
+5. Cuando se empiecen a pocha
