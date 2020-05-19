@@ -19,4 +19,6 @@
 5. Sobreir los tomates con los ajos hasta que se empiecen a pochar
 6. Cuando estén pochados, aplastar los trozos de tomate para que se vayan deshaciendo
 7. Añadir las patatas
-8. Freir con el aceite hasta que las patatas estén cocinadas (se pueden ir pinchando las patatas para ve r
+8. Freir con el aceite hasta que las patatas estén cocinadas (se pueden ir pinchando las patatas para ve rlo blandas que están)
+9. Añadir la harina de almortas, sofreír con el aceite
+10. I
