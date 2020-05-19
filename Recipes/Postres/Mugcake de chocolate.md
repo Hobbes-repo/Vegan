@@ -4,6 +4,8 @@
 
 ##### Ingredientes
 
-
+* 2 cucharadas de harina
+* 2 cucharadas de cacao en polvo sin endulzar
+* 2 cuchar
 
 ##### Preparación
