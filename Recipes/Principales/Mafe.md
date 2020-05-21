@@ -12,6 +12,9 @@
 * 1 pimiento rojo
 * 1 cebolla pequeña
 * 3 tomates pequeños
+* 3 cucharadas de mantequilla de cacahuete
+* 2 cucharadas de aceite de girasol
+* 2 cucharadas de con
 
 
 ##### Preparación
