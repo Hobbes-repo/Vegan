@@ -14,7 +14,9 @@
 * 3 tomates pequeños
 * 3 cucharadas de mantequilla de cacahuete
 * 2 cucharadas de aceite de girasol
-* 2 cucharadas de con
-
+* 2 cucharadas de concentrado de tomate
+* Caldo vegetal
 
 ##### Preparación
+
+1. Pelar y cortar las patatas, zanahorias y yuc
