@@ -19,4 +19,5 @@
 
 ##### Preparación
 
-1. Pelar y cortar las patatas, zanahorias y yuc
+1. Pelar y cortar las patatas, zanahorias y yuca en trozos grandes. Picar la cebolla
+2. Cortamos la berenje
