@@ -24,4 +24,4 @@
 3. Sofreímos la cebolla a fuego medio y la dejamos tapada
 4. Echamos en una batidora los tomates y el pimiento y batimos hasta que quede una crema
 5. Añadimos la mezcla de la batidora en la sartén con la cebolla, tapamos y lo dejamos 10 minutos
-6. Pasado los 10 minutos, agregamos el 
+6. Pasado los 10 minutos, agregamos 
