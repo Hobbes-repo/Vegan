@@ -27,4 +27,5 @@
 6. Pasado los 10 minutos, agregamos las patatas, la yuca, las berenjenas, las zanahorias y el concentrado de tomate a la sartén y mezclamos bien
 7. Deshacemos la mantquilla de cacahuete con agua y la añadimos a la sartén
 8. Agregamos el caldo de verduras y mezclamos bien
-9. Dejamos la cacerola medio tapada y cocemos durante 25 minutos
+9. Dejamos la cacerola medio tapada y cocemos durante 25 minutos hasta que las verduras estén hechas
+10. Servir con arroz blanco
