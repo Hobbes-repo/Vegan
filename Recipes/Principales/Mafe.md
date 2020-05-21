@@ -21,8 +21,8 @@
 
 1. Pelar y cortar las patatas, zanahorias y yuca en trozos grandes. Picar la cebolla
 2. Cortamos la berenjena en trozos medianos y la dejamos a remojo con agua y sal
-3. Sofreímos la cebolla a fuego medio y la dejamos tapada
+3. Sofreímos la cebolla a fuego medio en el aceite de girasol y la dejamos tapada
 4. Echamos en una batidora los tomates y el pimiento y batimos hasta que quede una crema
 5. Añadimos la mezcla de la batidora en la sartén con la cebolla, tapamos y lo dejamos 10 minutos
-6. Pasado los 10 minutos, agregamos las patatas, la yuca, las berenjenas a la sartén y mezclamos bien
+6. Pasado los 10 minutos, agregamos las patatas, la yuca, las berenjenas y las zanahorias a la sartén y mezclamos bien
 7. 
