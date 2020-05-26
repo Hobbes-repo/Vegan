@@ -1,6 +1,6 @@
 ## Best Mozzarela
 
-## Ingredients
+##### Ingredients
 
 * 125 g soft or silken tofu
 * 30 g tapioca starch (also known as tapioca flour) (maicena)
@@ -11,5 +11,8 @@
 * 1 1/2 teaspoons salt
 * 1/2 teaspoon garlic powder
 * 375 ml boiling water (or use cold water if you are using agar)
+
+##### Preparation
+1. Add everything to a blender except the boiling water
 
 https://itdoesnttastelikechicken.com/the-best-vegan-mozzarella/
