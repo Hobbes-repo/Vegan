@@ -14,6 +14,7 @@
 
 ##### Preparation
 1. Add everything to a blender except the boiling water
-2. Prepare a recipient big enough for the mixture, since we will have to move it quickly from the blender to the
+2. Prepare a recipient big enough for the mixture, since we will have to move it quickly from the blender to the recipient
+3. Make sure the water is boiling, add it to the blender and inmediately 
 
 https://itdoesnttastelikechicken.com/the-best-vegan-mozzarella/
