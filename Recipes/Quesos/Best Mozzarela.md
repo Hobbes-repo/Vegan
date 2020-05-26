@@ -1,8 +1,8 @@
-Best Mozzarela
+## Best Mozzarela
 
-Ingredients
+## Ingredients
 
-    125 g soft or silken tofu
+   125 g soft or silken tofu
     30 g tapioca starch (also known as tapioca flour)
     55 g refined coconut oil, melted
     2 tablespoons nutritional yeast
