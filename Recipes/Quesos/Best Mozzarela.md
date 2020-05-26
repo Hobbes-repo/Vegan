@@ -2,11 +2,11 @@
 
 ## Ingredients
 
-   125 g soft or silken tofu
-    30 g tapioca starch (also known as tapioca flour)
-    55 g refined coconut oil, melted
-    2 tablespoons nutritional yeast
-    1 1/2 tablespoons kappa carrageenan (or substitute 2 tablespoons agar powder)
+* 125 g soft or silken tofu
+* 30 g tapioca starch (also known as tapioca flour) (maicena)
+* 55 g refined coconut oil, melted
+* 2 tablespoons nutritional yeast
+* 1 1/2 tablespoons kappa carrageenan (or substitute 2 tablespoons agar powder)
     1 tablespoon sauerkraut
     1 1/2 teaspoons salt
     1/2 teaspoon garlic powder
