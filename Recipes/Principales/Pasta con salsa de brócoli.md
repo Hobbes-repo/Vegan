@@ -17,8 +17,10 @@
 
 ##### Preparación
 
+1. Corta las r
 1. Pon el brócoli a hervir con mucha agua
-2. Corta y sofríe los ajos y la cebolla en una sartén grande
+2. Corta y sofríe los ajos y la cebolla en una olla grande
+3. Cuando
 
 
 ##### Receta original
