@@ -5,6 +5,7 @@ Pasta con brócoli
 ##### Ingredientes
 
 * 2 ajos
+* 1 
 * 8 ramitas de brócoli
 * 200gr de pasta
 * Aceite de oliva
