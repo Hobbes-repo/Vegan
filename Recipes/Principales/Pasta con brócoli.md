@@ -1,12 +1,13 @@
-Pasta con brócoli
-
 ## Pasta con brócoli
+
+* Para 4 personas
 
 ##### Ingredientes
 
 * 2 ajos
-* 1 
-* 8 ramitas de brócoli
+* 1 cebolla
+* 1 brócoli mediano/grande
+
 * 200gr de pasta
 * Aceite de oliva
 
