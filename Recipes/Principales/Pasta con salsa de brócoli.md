@@ -15,10 +15,8 @@
 
 ##### Preparación
 
-1. Pon las pasta y el brócoli a hervir en el mismo cacharro
-2. Mientras tanto, fríe los ajos con aceite en una sartén hasta que se doren
-3. Cuando le queden unos 2/3 minutos a la pasta, cuela la pasta y el brócoli y ponlos en la sartén, guarda el agua
-4. El brócoli debería deshacerse, ve añadiendo el agua de hervido poco a poco y tritura con una espátula el brócoli hasta que quede cremoso
+1. Pon el brócoli a hervir con mucha agua
+2. 
 
 
 ##### Receta original
