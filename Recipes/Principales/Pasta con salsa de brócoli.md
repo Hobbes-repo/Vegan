@@ -20,7 +20,8 @@
 1. Corta las ramitas del brócoli y échalo a hervir con mucha agua (usaremos esta misma agua para cocer la pasta)
 2. Corta y sofríe los ajos y la cebolla en una olla grande
 3. Cuando el sofrito esté hecho apagar el fuego hasta que el brócoli esté hecho
-4. Una vez el brócoli esté hecho, añadirlo a la olla del sofrito a fuego
+4. Una vez el brócoli esté hecho, añadirlo a la olla del sofrito a fuego medio y añadir las pastillas de caldo en esa misma olla
+5. Poner la pasta a hervir en el agua de cod
 
 
 ##### Receta original
