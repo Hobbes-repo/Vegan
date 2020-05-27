@@ -23,7 +23,7 @@
 4. Una vez el brócoli esté hecho, añadirlo a la olla del sofrito a fuego medio y añadir las pastillas de caldo en esa misma olla
 5. Poner la pasta a hervir en el agua de cocer el brócoli
 6. Triturar todo lo de la olla del sofrito con la minipimer, ajustar de sal y pimienta negra al gusto, poner a fuego bajo (si se quiere menos densa, echar un poco del agua de hervir el brócoli)
-7. Una vez hecha la pasta, sacarla del agua
+7. Una vez hecha la pasta, sacarla del agua y echarla en la olla con la salsa de brócoli y remover bien
 
 ##### Receta original
 
