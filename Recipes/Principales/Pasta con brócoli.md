@@ -7,9 +7,11 @@
 * 2 ajos
 * 1 cebolla
 * 1 brócoli mediano/grande
-
-* 200gr de pasta
+* 2 pastillas de caldo
+* 400gr de pasta
 * Aceite de oliva
+* Sal
+* Pimienta negra
 
 ##### Preparación
 
