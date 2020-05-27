@@ -17,7 +17,7 @@
 
 ##### Preparación
 
-1. Corta las r
+1. Corta las ramitas del brócoli y échalo a hervir con mucha agua (usaremos esta misma agua para cocer la pasta)
 1. Pon el brócoli a hervir con mucha agua
 2. Corta y sofríe los ajos y la cebolla en una olla grande
 3. Cuando
