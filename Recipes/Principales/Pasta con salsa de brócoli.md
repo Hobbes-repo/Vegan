@@ -1,4 +1,4 @@
-## Pasta con brócoli
+## Pasta con salsa de brócoli
 
 * Para 4 personas
 
