@@ -1,7 +1,7 @@
 ## Pasta con salsa de brócoli
 
 * Para 4 personas
-
+* Nec
 ##### Ingredientes
 
 * 2 ajos
@@ -16,7 +16,7 @@
 ##### Preparación
 
 1. Pon el brócoli a hervir con mucha agua
-2. 
+2. Corta y sofríe los ajos y la cebolla en una sartén grande
 
 
 ##### Receta original
