@@ -1,7 +1,9 @@
 ## Pasta con salsa de brócoli
 
 * Para 4 personas
-* Nec
+* Necesita minipimer
+* Recomiendo freír los ajos y la cebolla en una olla para así poder triturarlo ahí directamente
+
 ##### Ingredientes
 
 * 2 ajos
