@@ -44,6 +44,8 @@ Mercadona products
 | Nombre | Cantidad | Precio |
 |----|----|----|
 |Yogur frutos del bosque| 4 unidades| 1.15€|
+|Yogur natural sin azucar| 4 unidades| ??|
+|Yogur natural azucarado| 4 unidades| ??|
 |Yogur frutos piña y maracuyá| 4 unidades| 1.15€|
 |Natillas chocolate| 4 unidades| 1.19€|
 |Natillas vainilla| 4 unidades| 1.19€|
