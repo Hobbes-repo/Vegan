@@ -1,6 +1,8 @@
 ## Pastel del pastor
 
 * Para 4 personas
+* Preparación 15 minutos
+* Cocción 45 minutos
 
 ##### Ingredientes
 
