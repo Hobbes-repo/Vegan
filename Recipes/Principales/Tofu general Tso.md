@@ -1,7 +1,7 @@
 ## Tofu general Tso
 
 * Para 4 personas
-* Lo ideal es dejarllo macerar toda la noche
+* Lo ideal es dejarlo macerar toda la noche
 
 ##### Ingredientes
 
