@@ -1,6 +1,8 @@
 ## Sopa Thai de coco
 
 * Para 4 personas
+* Preparación 10 minutos
+* Cocción 15 minutos
 
 ##### Ingredientes
 
