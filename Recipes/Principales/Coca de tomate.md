@@ -1,8 +1,8 @@
 ## Coca de tomate
 
-* Para 1 coca
+* Para 2 cocas
 * Tiempo de preparación: 15 minutos
-* Tiempo de cocinado: 90 minutos
+* Tiempo de cocinado: 100 minutos
 
 ##### Ingredientes
 
@@ -28,6 +28,6 @@
 7. Programar 30 minutos, velocidad 1 al revés, temperatura varoma (110ºC)
 8. Cuando queden 5 minutos, precalentar el horno a 180ºC
 9. Preparar la masa de coca en una bandeja
-10. Cuando acaben los 30 minutos, echar el contenido en la coca y cubrir con la otra media coca
-11. Pinchar la coca con el tenedor
-12. Meter en el horno durante 30 minutos
+10. Cuando acaben los 30 minutos, echar el contenido en las coca y cubrir con las otras medias cocas
+11. Pinchar las coca con un tenedor
+12. Meter en el horno durante unos 40 minutos
