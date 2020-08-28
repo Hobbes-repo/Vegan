@@ -25,7 +25,7 @@
 1. Cortar la cebolla en trozos pequeños
 2. Cortar el pimiento en tiras
 3. Cortar el brócoli a tronquitos
-4. Rallar el genjibre, se necesita una cucharada
+4. Rallar el jengibre, se necesita una cucharada
 5. En una sartén grande, poner el aceite a fuego alto
 6. Añadir la salsa de soja, sirope de ágave, ketchup, sriracha, y caldo de verduras
 7. Remover bien las salsas para que se mezclen y añadir las verduras
