@@ -9,7 +9,7 @@
 * 1 pimiento verde
 * 200g de Brocoli
 * 240g de tofu (la receta es original con Tempeh)
-* Gengibre
+* Jengibre
 * 60g de salsa de soja
 * 60g de sirópe de ágave
 * 60g de Ketchup
