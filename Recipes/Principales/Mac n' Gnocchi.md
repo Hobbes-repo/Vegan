@@ -10,6 +10,7 @@
 
 * 1 cucharada de aceite de oliva
 * 1 cebolla cortada en daditos
+* 4 ajos picados
 * 2 vasos de espinacas
 * 400 ml de leche de coco
 * 1/2 cucharadita de orégano
@@ -21,8 +22,8 @@
 
 *Para la crema de anacardos*
 
-* 1 pastilla de caldo de verduras
-* 150g de anacardos
+* 250ml de caldo de verduras (1 pastilla de caldo de verduras y un vaso)
+* 150g de anacardos (hay que dejarlos en remojo durante al menos 15 minutos en agua caliente)
 * 1 cucharada de levadura nutricional
 * 1/2 cucharadita de sal
 * 1 cucharadita de aceite de oliva
