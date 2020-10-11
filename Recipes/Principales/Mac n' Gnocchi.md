@@ -23,7 +23,7 @@
 *Para la crema de anacardos*
 
 * 250ml de caldo de verduras (1 pastilla de caldo de verduras y un vaso)
-* 150g de anacardos (hay que dejarlos en remojo durante al menos 15 minutos en agua caliente)
+* 150g de anacardos (hay que dejarlos en remojo durante al menos 15 minutos en agua caliente) [Se puede sustituir por una patata cocida]
 * 1 cucharada de levadura nutricional
 * 1/2 cucharadita de sal
 * 1 cucharadita de aceite de oliva
