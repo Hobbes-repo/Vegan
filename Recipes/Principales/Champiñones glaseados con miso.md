@@ -8,7 +8,7 @@
 * 1 cebolla
 * 2 ajos
 * 3 cucharadas de salsa de soja
-* 3 cucharadas de pasta de miso
+* 3 cucharaditas de pasta de miso
 * 2 cucharadas de sirope de arce (o sirope de ágave)
 * 3 cucharadas de agua
 * 1 cucharada de maicena
