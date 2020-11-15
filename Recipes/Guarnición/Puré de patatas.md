@@ -17,4 +17,4 @@
 
 ##### Origen
 
-https://danzadefogones.com/tofu-general-tso/
+https://danzadefogones.com/pure-patatas-vegano/
