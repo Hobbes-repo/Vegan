@@ -16,7 +16,6 @@
 * 1/2 cucharadita de orégano
 * El zumo de medio limón
 * Sal y pimienta al gusto
-* 1 cucharada de aceite de oliva
 * 500g de Gnocchis (el de Mercadona va perfecto)
 * (Opcional) Queso vegano
 
