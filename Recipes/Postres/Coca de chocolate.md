@@ -16,9 +16,9 @@
 ##### Preparación
 
 1. Precalentamos el horno a 180 grados.
-2. En una taza echamos las dos cucharadas de semillas de lino y las seis cucharadas de agua y las batimos con la minipimer. Reservamos al menos 5 minutos mientras preparamos el resto.
-3. En un bol (o directamente en la termomix con la mariposa, velocidad cuchara) ponemos todos los ingredientes secos (la harina de garbanzo, la harina de avena o copos de avena triturados, el cacao, el azúcar moreno, el bicarbonato y la levadura) y los mezclamos.
-4. En otro bol añadimos los ingredientes húmedos (los echamos también a la termomix, velocidad espiga con la mariposa) (la mezcla de lino y agua, el sirope de agave, el zumo de naranja, el aceite y la mermelada de naranja), los mezclamos y añadimos los ingredientes secos. Mezclamos con ayuda de unas varillas o de una espátula hasta que se hayan integrado completamente.
+2. En una taza echamos las dos cucharadas de semillas de lino o chía y las seis cucharadas de agua y las batimos con la minipimer. Reservamos al menos 5 minutos mientras preparamos el resto.
+3. En un bol (o directamente en la termomix con la mariposa, velocidad cuchara) ponemos todos los ingredientes secos (la harina de garbanzo, la harina de trigo, el cacao, el azúcar moreno, el bicarbonato y la levadura) y los mezclamos.
+4. En otro bol añadimos los ingredientes húmedos (los echamos también a la termomix, velocidad espiga con la mariposa) (la mezcla de lino y agua, el sirope de agave y el aceite), los mezclamos y añadimos los ingredientes secos. Mezclamos con ayuda de unas varillas o de una espátula hasta que se hayan integrado completamente.
 5. Echamos la mezcla en un molde (nosotros utilizamos uno desmoldable redondo de 22 cm. de diámetro). Para que no se nos pegara pusimos papel de hornear en la base (se puede huntar con margarina).
 6. Metemos el molde en el horno en la altura central del mismo sobre una rejilla y dejamos que se haga durante unos 35 ó 40 minutos. Sacamos, dejamos enfriar y podemos desmoldar nuestro bizcocho.
 
