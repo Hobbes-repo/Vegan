@@ -1,5 +1,3 @@
-Roscón de reyes
-
 ### Roscón de reyes
 
 ##### Ingredientes
@@ -9,7 +7,7 @@ Roscón de reyes
 * 260g de leche vegetal (mejor sin endulzar)
 * 30g de aceite de girasol
 * 40g de margarina
-* 30g de levadura fresca (de sobre también sirve)
+* 30g de levadura fresca
 * 30g de agua de azahar
 * 460g de harina de fuerza
 * 1 pizca de sal
@@ -25,7 +23,7 @@ Roscón de reyes
 6. **Dejar la masa en el vaso hasta que la masa se salga por el agujero (unos 40 minutos).**
 7. Bajar la masa con la espátula y volver a amasar 2 minutos a velocidad espiga.
 8. Enharinar la mesa de trabajo, sacar la masa del vaso y amasar un poco con las manos.
-9. Dividir la masa en 2 para dos roscones. Formar 2 bolas lisas echándoles harina encima. Hacer la forma del roscón haciendo el agujero en las bolas y ensanchando la masa con cuidado, colocar las masas en una bandeja de horno y pintar con aceite de girasol o leche vegetal.
+9. Dividir la masa en 2 para dos roscones. Formar 2 bolas lisas echándoles harina encima. Hacer la forma del roscón haciendo el agujero en las bolas y ensanchando la masa con cuidado, poner un bol en el agujero para que no se cierre en el horno, colocar las masas en una bandeja de horno y pintar con aceite de girasol o leche vegetal.
 10. Decorar con la fruta escarchada y pegotes de azúcar con agua.
 11. **Tapar el roscón con un paño y dejar que la masa vuelva a doblar su volumen (aproximadamente 1 hora).**
 12. Precalentar el horno a 180ºC.
